@@ -1,1 +1,0 @@
-# cantonpalace.github.io
